@@ -1,4 +1,4 @@
-### Hi there 👋
+###  Go to the vast world and listen to the teachings of nature. 👋
 
 <!--
 **zx-sumerud/zx-sumerud** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
